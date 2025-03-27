@@ -15,7 +15,7 @@
 - 𝗬𝗼𝘂 𝗽𝗿𝗼𝗺𝗼𝘁𝗲 𝗼𝗿 𝗲𝗻𝗱𝗼𝗿𝘀𝗲 𝗵𝗮𝗿𝗺𝗳𝘂𝗹 𝗯𝗲𝗹𝗶𝗲𝗳𝘀 𝗼𝗿 𝗶𝗱𝗲𝗼𝗹𝗼𝗴𝗶𝗲𝘀.
 
 
-- 𝗬𝗼𝘂 𝗮𝗿𝗲 𝗮 𝗽𝗿𝗼-𝘀𝗵𝗶𝗽𝗽𝗲𝗿, 𝗼𝗿 𝗮𝗻𝘁𝗶-𝘀𝗵𝗶𝗽𝗽𝗲𝗿
+- 𝗬𝗼𝘂 𝗮𝗿𝗲 𝗮 𝗽𝗿𝗼-𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (**I don't like proshippers because they support ships that romanticize harmful behaviors, like abuse or manipulation, which makes me uncomfortable. I believe some things shouldn’t be glorified in fandom, even if it's fictional**)
 
 - 𝗬𝗼𝘂 𝗱𝗶𝘀𝗿𝗲𝗴𝗮𝗿𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝗼𝗿 𝗽𝗿𝗶𝘃𝗮𝗰𝘆—𝘄𝗵𝗲𝘁𝗵𝗲𝗿 𝗺𝗶𝗻𝗲 𝗼𝗿 𝗼𝘁𝗵𝗲𝗿𝘀’.
 
@@ -46,3 +46,9 @@
 ![Image](https://github.com/user-attachments/assets/eb21fd09-0c4d-430a-985a-3115b23a87c8)
 
 `im so slick :p`
+
+---
+
+**disclaimer**
+
+*for those who WERE confused, I **HAD** both terms 'proshipping and anti-shipping on my DNI list because I want to avoid people who support both harassment and ships I find problematic. I realize this might seem confusing, but I’m just trying to make clear my boundaries around fandom behavior, I didn' realize what I pointed was something not clearly for others haha. I apologize, for the confusion and I might aswell also confused myself for writing. I also put a reason* 

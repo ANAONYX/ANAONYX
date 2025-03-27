@@ -41,7 +41,6 @@
 
 ₀.₅ `anyways, that's all! to know more, explore my strawpage beneath my PFP!` (*Working on a new version btww*)
 
-INT PLEASEE!!!
 
 ![Image](https://github.com/user-attachments/assets/376e0baa-771c-4a0f-a452-36f7dc70cf4f)
 

@@ -42,9 +42,8 @@
 ₀.₅ `anyways, that's all! to know more, explore my strawpage beneath my PFP!` (*Working on a new version btww*)
 
 
-![Image](https://github.com/user-attachments/assets/c6ae7948-f35d-4af0-8183-ed2feae8ac6b) ← **Dandy's world area**
+![Image](https://github.com/user-attachments/assets/c6ae7948-f35d-4af0-8183-ed2feae8ac6b) ⤴ **Dandy's world area**
 
-![Image](https://github.com/user-attachments/assets/eb21fd09-0c4d-430a-985a-3115b23a87c8) ← **welcome home area**
+![Image](https://github.com/user-attachments/assets/eb21fd09-0c4d-430a-985a-3115b23a87c8) ⤴ **welcome home area**
 
-**you can find me in these areas haha**
-
+`im so slick :p`

@@ -45,11 +45,3 @@
 
 ----
 
-![Image](https://github.com/user-attachments/assets/c6ae7948-f35d-4af0-8183-ed2feae8ac6b) 
-
-![Image](https://github.com/user-attachments/assets/eb21fd09-0c4d-430a-985a-3115b23a87c8)
-
-`im so slick :p`
-
----
-

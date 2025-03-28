@@ -41,6 +41,9 @@
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*)
 
+![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
+
+----
 
 ![Image](https://github.com/user-attachments/assets/c6ae7948-f35d-4af0-8183-ed2feae8ac6b) 
 
@@ -49,6 +52,4 @@
 `im so slick :p`
 
 ---
-
-![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
 

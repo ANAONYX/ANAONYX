@@ -38,6 +38,7 @@
 ₀.₄ *I yapp a-lot | am open-minded | I am an artist and writer myself!*
 ~
 ---
+![Image](https://github.com/user-attachments/assets/ed775fd0-acc4-43e7-8a3f-dd9385c6faf2)
 
 ₀.₅ `anyways, that's all! to know more, explore my strawpage beneath my PFP!` (*Working on a new version btww*)
 

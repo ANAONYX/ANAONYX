@@ -39,7 +39,7 @@
 ~
 ---
 
-₀.₅ `anyways, that's all! to know more, explore my strawpage beneath my PFP!` (*Working on a new version btww*)
+₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*)
 
 
 ![Image](https://github.com/user-attachments/assets/c6ae7948-f35d-4af0-8183-ed2feae8ac6b) 
@@ -49,11 +49,6 @@
 `im so slick :p`
 
 ---
-
-**disclaimer!⚠️** ![image](https://github.com/user-attachments/assets/cb61f11c-baff-443e-a8ae-01eab921d4e7)
-
-
-*for those who WERE confused, I **HAD** both terms 'proshipping and anti-shipping on my DNI list because I want to avoid people who support both harassment and ships I find problematic. I realize this might seem confusing, but I’m just trying to make clear my boundaries around fandom behavior, I didn' realize what I pointed was something not clearly for others haha. I apologize, for the confusion and I might aswell also confused myself for writing. I also put a reason* 
 
 ![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
 

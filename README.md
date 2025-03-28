@@ -36,7 +36,7 @@
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
 ₀.₄ *I yapp a-lot | am open-minded | I am an artist and writer myself!*
-~
+
 ---
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*)

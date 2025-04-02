@@ -15,7 +15,7 @@
 - 𝗬𝗼𝘂 𝗽𝗿𝗼𝗺𝗼𝘁𝗲 𝗼𝗿 𝗲𝗻𝗱𝗼𝗿𝘀𝗲 𝗵𝗮𝗿𝗺𝗳𝘂𝗹 𝗯𝗲𝗹𝗶𝗲𝗳𝘀 𝗼𝗿 𝗶𝗱𝗲𝗼𝗹𝗼𝗴𝗶𝗲𝘀.
 
 
-- 𝗬𝗼𝘂 𝗮𝗿𝗲 𝗮 𝗽𝗿𝗼-𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (**I don't like proshippers because they support ships that romanticize harmful behaviors, like abuse or manipulation, which makes me uncomfortable. I believe some things shouldn’t be glorified in fandom, even if it's fictional**)
+- 𝗬𝗼𝘂 𝗮𝗿𝗲 𝗮 𝗽𝗿𝗼-𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (**I don't like proshippers because they support ships that romanticize harmful behaviors, like abuse or manipulation depending on what it is, which makes me uncomfortable. I believe some things shouldn’t be glorified in fandoms, even if it's fictional**)
 
 - 𝗬𝗼𝘂 𝗱𝗶𝘀𝗿𝗲𝗴𝗮𝗿𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝗼𝗿 𝗽𝗿𝗶𝘃𝗮𝗰𝘆—𝘄𝗵𝗲𝘁𝗵𝗲𝗿 𝗺𝗶𝗻𝗲 𝗼𝗿 𝗼𝘁𝗵𝗲𝗿𝘀’.
 

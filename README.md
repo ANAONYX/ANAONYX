@@ -32,7 +32,7 @@
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 ---
 
-₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*)
+₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage  is shut-down`
 
 ![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
 

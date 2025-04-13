@@ -29,13 +29,13 @@
 
 ₀.₄ *I yapp a-lot | am open-minded | I am an artist and writer myself!*
 
-![Image](https://github.com/user-attachments/assets/5f39e398-3ea6-4f36-81a4-460d11ca569e)
+
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 ---
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage  is shut-down`
 
 ![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
-
+![Image](https://github.com/user-attachments/assets/85b03405-3b71-47c8-8e8b-dac694e9693c) 
 ----
 

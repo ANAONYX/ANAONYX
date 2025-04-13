@@ -36,6 +36,9 @@
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage  is shut-down`
 
 ![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
-![Image](https://github.com/user-attachments/assets/85b03405-3b71-47c8-8e8b-dac694e9693c) ![Image](https://github.com/user-attachments/assets/5e556411-9fa5-486d-8165-5fa9b50a674d) ![Image](https://github.com/user-attachments/assets/ddeebb5f-947d-488b-898b-57675a0db19a)
+![Image](https://github.com/user-attachments/assets/85b03405-3b71-47c8-8e8b-dac694e9693c) ![Image](https://github.com/user-attachments/assets/5e556411-9fa5-486d-8165-5fa9b50a674d) ![Image](https://github.com/user-attachments/assets/ddeebb5f-947d-488b-898b-57675a0db19a) ![Image](https://github.com/user-attachments/assets/e2b03897-b37b-4ffa-adc4-8191a8346ac6)
+![Image](https://github.com/user-attachments/assets/3f2ada42-7df7-4b3f-8197-fc0d92c259b5)
+![Image](https://github.com/user-attachments/assets/3986db8f-d8ec-4932-8554-b84c67a1b66c)
+![Image](https://github.com/user-attachments/assets/89ea6a59-a3a5-4990-97db-dafbe1ab7d8e)
 ----
 

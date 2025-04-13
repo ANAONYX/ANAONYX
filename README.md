@@ -29,6 +29,7 @@
 
 ₀.₄ *I yapp a-lot | am open-minded | I am an artist and writer myself!*
 
+![Image](https://github.com/user-attachments/assets/5f39e398-3ea6-4f36-81a4-460d11ca569e)
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 ---
 

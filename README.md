@@ -27,7 +27,7 @@
 
 ₀.₃ || 𝘼 𝙛𝙚𝙬 𝙩𝙝𝙞𝙣𝙜𝙨 𝙖𝙗𝙤𝙪𝙩 𝙢𝙮𝙨𝙚𝙡𝙛 ||
 
-₀.₄ *I yapp a-lot | am open-minded | I am an artist and writer myself!*
+₀.₄ *I yapp a-lot | am open-minded | I am an artist and writer myself! | I am multi-fandom, so expect me to change my acc appearance every once a week/month XD*
 
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺

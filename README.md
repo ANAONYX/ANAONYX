@@ -21,7 +21,7 @@
 
 ⫘⫘⫘⫘⫘⫘ 📂
 ---
-₀.₂ *ʜᴇʀᴇ ᴛᴏ ᴄᴏʟʟᴀʙᴏʀᴀᴛᴇ ᴏɴ ᴄᴏᴅɪɴɢ, ᴇxᴘʟᴏʀᴇ ꜱᴛʀᴏɴɢ ɪᴅᴇᴀꜱ, ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟ ᴀɴᴅ ᴄʜᴀᴛ. ɪ ʟᴏᴠᴇ ᴅɪᴠɪɴɢ ɪɴᴛᴏ ᴄʀᴇᴀᴛɪᴠᴇ ᴘʀᴏᴊᴇᴄᴛꜱ, ᴡʜᴇᴛʜᴇʀ ɪᴛ'ꜱ ʙʀᴀɪɴꜱᴛᴏʀᴍɪɴɢ ꜱᴏᴍᴇᴛʜɪɴɢ ɪɴɴᴏᴠᴀᴛɪᴠᴇ ᴏʀ ʀᴇꜰɪɴɪɴɢ ᴄᴏᴏʟ ᴄᴏɴᴄᴇᴘᴛꜱ. ᴀʟᴡᴀʏꜱ ᴜᴘ ꜰᴏʀ ʟᴇᴀʀɴɪɴɢ ɴᴇᴡ ᴛʜɪɴɢꜱ ᴀɴᴅ ꜱʜᴀʀɪɴɢ ɪɴꜱɪɢʜᴛꜱ ᴅᴏɴ'ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴄᴏʟʟᴀʙ! :3*
+₀.₂ *ʜᴇʀᴇ ᴛᴏ ᴄᴏʟʟᴀʙᴏʀᴀᴛᴇ ᴏɴ ᴄᴏᴅɪɴɢ, ᴇxᴘʟᴏʀᴇ ꜱᴛʀᴏɴɢ ɪᴅᴇᴀꜱ, ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟ ᴀɴᴅ ᴄʜᴀᴛ. ɪ ʟᴏᴠᴇ ᴅɪᴠɪɴɢ ɪɴᴛᴏ ᴄʀᴇᴀᴛɪᴠᴇ ᴘʀᴏᴊᴇᴄᴛꜱ, ᴡʜᴇᴛʜᴇʀ ɪᴛ'ꜱ ʙʀᴀɪɴꜱᴛᴏʀᴍɪɴɢ ꜱᴏᴍᴇᴛʜɪɴɢ ɪɴɴᴏᴠᴀᴛɪᴠᴇ ᴏʀ ʀᴇꜰɪɴɪɴɢ ᴄᴏᴏʟ ᴄᴏɴᴄᴇᴘᴛꜱ. ᴀʟᴡᴀʏꜱ ᴜᴘ ꜰᴏʀ ʟᴇᴀʀɴɪɴɢ ɴᴇᴡ ᴛʜɪɴɢꜱ ᴀɴᴅ ꜱʜᴀʀɪɴɢ ɪɴꜱɪɢʜᴛꜱ. ᴅᴏɴ'ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴄᴏʟʟᴀʙ! :3*
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
@@ -36,6 +36,4 @@
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage has been removed from this account`
 
 ![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
-![Image](https://github.com/user-attachments/assets/85b03405-3b71-47c8-8e8b-dac694e9693c) ![Image](https://github.com/user-attachments/assets/5e556411-9fa5-486d-8165-5fa9b50a674d)
-----
-
+![Image](https://github.com/user-attachments/assets/85b03405-3b71-47c8-8e8b-dac694e9693c)

@@ -19,13 +19,11 @@
 
 - 𝗬𝗼𝘂 𝗱𝗶𝘀𝗿𝗲𝗴𝗮𝗿𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝗼𝗿 𝗽𝗿𝗶𝘃𝗮𝗰𝘆—𝘄𝗵𝗲𝘁𝗵𝗲𝗿 𝗺𝗶𝗻𝗲 𝗼𝗿 𝗼𝘁𝗵𝗲𝗿𝘀’.
 
-⫘⫘⫘⫘⫘⫘ 📂
 ![Image](https://github.com/user-attachments/assets/4077e8cc-a58e-45c6-8021-7d950e149a07)
 ₀.₂ *ʜᴇʀᴇ ᴛᴏ ᴄᴏʟʟᴀʙᴏʀᴀᴛᴇ ᴏɴ ᴄᴏᴅɪɴɢ, ᴇxᴘʟᴏʀᴇ ꜱᴛʀᴏɴɢ ɪᴅᴇᴀꜱ, ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟ ᴀɴᴅ ᴄʜᴀᴛ. ɪ ʟᴏᴠᴇ ᴅɪᴠɪɴɢ ɪɴᴛᴏ ᴄʀᴇᴀᴛɪᴠᴇ ᴘʀᴏᴊᴇᴄᴛꜱ, ᴡʜᴇᴛʜᴇʀ ɪᴛ'ꜱ ʙʀᴀɪɴꜱᴛᴏʀᴍɪɴɢ ꜱᴏᴍᴇᴛʜɪɴɢ ɪɴɴᴏᴠᴀᴛɪᴠᴇ ᴏʀ ʀᴇꜰɪɴɪɴɢ ᴄᴏᴏʟ ᴄᴏɴᴄᴇᴘᴛꜱ. ᴀʟᴡᴀʏꜱ ᴜᴘ ꜰᴏʀ ʟᴇᴀʀɴɪɴɢ ɴᴇᴡ ᴛʜɪɴɢꜱ ᴀɴᴅ ꜱʜᴀʀɪɴɢ ɪɴꜱɪɢʜᴛꜱ. ᴅᴏɴ'ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴄᴏʟʟᴀʙ! :3*
 
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
----
+![Image](https://github.com/user-attachments/assets/4c5100b9-e6bd-4c18-944e-36891b51f2e0)
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage has been removed from this account`
 

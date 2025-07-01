@@ -24,7 +24,7 @@
 ₀.₂ *ʜᴇʀᴇ ᴛᴏ ᴄᴏʟʟᴀʙᴏʀᴀᴛᴇ ᴏɴ ᴄᴏᴅɪɴɢ, ᴇxᴘʟᴏʀᴇ ꜱᴛʀᴏɴɢ ɪᴅᴇᴀꜱ, ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟ ᴀɴᴅ ᴄʜᴀᴛ. ɪ ʟᴏᴠᴇ ᴅɪᴠɪɴɢ ɪɴᴛᴏ ᴄʀᴇᴀᴛɪᴠᴇ ᴘʀᴏᴊᴇᴄᴛꜱ, ᴡʜᴇᴛʜᴇʀ ɪᴛ'ꜱ ʙʀᴀɪɴꜱᴛᴏʀᴍɪɴɢ ꜱᴏᴍᴇᴛʜɪɴɢ ɪɴɴᴏᴠᴀᴛɪᴠᴇ ᴏʀ ʀᴇꜰɪɴɪɴɢ ᴄᴏᴏʟ ᴄᴏɴᴄᴇᴘᴛꜱ. ᴀʟᴡᴀʏꜱ ᴜᴘ ꜰᴏʀ ʟᴇᴀʀɴɪɴɢ ɴᴇᴡ ᴛʜɪɴɢꜱ ᴀɴᴅ ꜱʜᴀʀɪɴɢ ɪɴꜱɪɢʜᴛꜱ. ᴅᴏɴ'ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴄᴏʟʟᴀʙ! :3*
 
 
-![Image](https://github.com/user-attachments/assets/4077e8cc-a58e-45c6-8021-7d950e149a07)
+![Image](https://github.com/user-attachments/assets/1bbe6f19-de52-4ad8-8782-a37a311b81a3)
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage has been removed from this account`
 

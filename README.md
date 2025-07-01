@@ -28,4 +28,5 @@
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage has been removed from this account`
 
-![image](https://github.com/user-attachments/assets/3f7d44b7-54a8-4091-8339-94cb6fa86bbf)
+
+![Image](https://github.com/user-attachments/assets/a6181f61-f5f4-4908-bbd9-01c143ec5f00)

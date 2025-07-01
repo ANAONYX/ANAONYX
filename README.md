@@ -26,7 +26,7 @@
 
 
 
-₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** (*Working on a new version btww*) `update: strawpage has been removed from this account`
+₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`
 ![Image](https://github.com/user-attachments/assets/1bbe6f19-de52-4ad8-8782-a37a311b81a3)
 
 ![Image](https://github.com/user-attachments/assets/a6181f61-f5f4-4908-bbd9-01c143ec5f00)

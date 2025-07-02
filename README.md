@@ -1,4 +1,4 @@
-## WHAT'S GOODIE?! [Visitor Badge](https://visitor-badge.glitch.me/badge?page_id=your-username.your-repo-name)
+## WHAT'S GOODIE?!
 
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
 

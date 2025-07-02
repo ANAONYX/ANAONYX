@@ -31,6 +31,6 @@ I started getting the hang of this app because I like to collaborate, make new f
 ![Image](https://github.com/user-attachments/assets/1bbe6f19-de52-4ad8-8782-a37a311b81a3)
 
 ![Image](https://github.com/user-attachments/assets/a6181f61-f5f4-4908-bbd9-01c143ec5f00)
-![image](https://github.com/user-attachments/assets/d964ea57-47df-42a7-9aa7-1f8cd4b32984)[`](https://wh7withinyou.straw.page/.com)
+![image](https://github.com/user-attachments/assets/d964ea57-47df-42a7-9aa7-1f8cd4b32984)[`](https://wh7withinyou.straw.page/)
 
 

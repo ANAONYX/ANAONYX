@@ -19,6 +19,7 @@
 - 𝗬𝗼𝘂 𝗮𝗿𝗲 𝗮 𝗽𝗿𝗼-𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (**I don't like proshippers because they support ships that romanticize harmful behaviors, like abuse or manipulation depending on what it is, which makes me uncomfortable. I believe some things shouldn’t be glorified in fandoms, even if it's fictional**)
 
 - 𝗬𝗼𝘂 𝗱𝗶𝘀𝗿𝗲𝗴𝗮𝗿𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝗼𝗿 𝗽𝗿𝗶𝘃𝗮𝗰𝘆—𝘄𝗵𝗲𝘁𝗵𝗲𝗿 𝗺𝗶𝗻𝗲 𝗼𝗿 𝗼𝘁𝗵𝗲𝗿𝘀’.
+![image](https://github.com/user-attachments/assets/d964ea57-47df-42a7-9aa7-1f8cd4b32984)
 
 
 I started getting the hang of this app because I like to collaborate, make new friends, and probably get to know more about you guys too. I think it's a cool way to share ideas, learn from others, and maybe even build some awesome things together! If you're one of the people following my account, you're awesome sauce dude 💋

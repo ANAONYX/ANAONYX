@@ -19,7 +19,7 @@
 
 - 𝗬𝗼𝘂 𝗱𝗶𝘀𝗿𝗲𝗴𝗮𝗿𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝗼𝗿 𝗽𝗿𝗶𝘃𝗮𝗰𝘆—𝘄𝗵𝗲𝘁𝗵𝗲𝗿 𝗺𝗶𝗻𝗲 𝗼𝗿 𝗼𝘁𝗵𝗲𝗿𝘀’.
 
----
+![Image](https://github.com/user-attachments/assets/82ed3787-435c-417e-9be4-cdebde542f99)
 
 I started getting the hang of this app because I like to collaborate, make new friends, and probably get to know more about you guys too. I think it's a cool way to share ideas, learn from others, and maybe even build some awesome things together! If you're one of the people following my account, you're awesome sauce dude 💋
 

@@ -4,7 +4,7 @@
 
 
 
- 📌 ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏`, 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩 (Lol)
+ 📌 ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏`, 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩 (*Lol*)
 ----------
 
 ₀.₁ 𝒟𝒩𝐼 𝒾𝒻.. : 𝗬𝗼𝘂 𝗵𝗼𝗹𝗱 𝗽𝗿𝗲𝗷𝘂𝗱𝗶𝗰𝗲𝗱 𝘃𝗶𝗲𝘄𝘀 𝗼𝗿 𝗱𝗶𝘀𝗰𝗿𝗶𝗺𝗶𝗻𝗮𝘁𝗲 𝗮𝗴𝗮𝗶𝗻𝘀𝘁 𝗼𝘁𝗵𝗲𝗿𝘀 𝗯𝗮𝘀𝗲𝗱 𝗼𝗻 𝗿𝗮𝗰𝗲, 𝗴𝗲𝗻𝗱𝗲𝗿 𝗶𝗱𝗲𝗻𝘁𝗶𝘁𝘆, 𝘀𝗲𝘅𝘂𝗮𝗹𝗶𝘁𝘆, 𝗮𝗯𝗶𝗹𝗶𝘁𝗶𝗲𝘀, 𝗼𝗿 𝗮𝗻𝘆 𝗼𝘁𝗵𝗲𝗿 𝗳𝗮𝗰𝘁𝗼𝗿.
@@ -23,7 +23,7 @@
 
 I started getting the hang of this app because I like to collaborate, make new friends, and probably get to know more about you guys too. I think it's a cool way to share ideas, learn from others, and maybe even build some awesome things together! If you're one of the people following my account, you're awesome sauce dude 💋
 
-***I'm pretty active on ponytown so If you see me around Just say Hi!!***
+***I'm pretty active on ponytown so If you see me around Just say Hi!! if you have concerns or questions - whisper***
 
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`

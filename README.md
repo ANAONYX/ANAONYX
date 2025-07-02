@@ -21,9 +21,9 @@
 
 ---
 
-₀.₂ *ʜᴇʀᴇ ᴛᴏ ᴄᴏʟʟᴀʙᴏʀᴀᴛᴇ ᴏɴ ᴄᴏᴅɪɴɢ, ᴇxᴘʟᴏʀᴇ ꜱᴛʀᴏɴɢ ɪᴅᴇᴀꜱ, ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟ ᴀɴᴅ ᴄʜᴀᴛ. ɪ ʟᴏᴠᴇ ᴅɪᴠɪɴɢ ɪɴᴛᴏ ᴄʀᴇᴀᴛɪᴠᴇ ᴘʀᴏᴊᴇᴄᴛꜱ, ᴡʜᴇᴛʜᴇʀ ɪᴛ'ꜱ ʙʀᴀɪɴꜱᴛᴏʀᴍɪɴɢ ꜱᴏᴍᴇᴛʜɪɴɢ ɪɴɴᴏᴠᴀᴛɪᴠᴇ ᴏʀ ʀᴇꜰɪɴɪɴɢ ᴄᴏᴏʟ ᴄᴏɴᴄᴇᴘᴛꜱ. ᴀʟᴡᴀʏꜱ ᴜᴘ ꜰᴏʀ ʟᴇᴀʀɴɪɴɢ ɴᴇᴡ ᴛʜɪɴɢꜱ ᴀɴᴅ ꜱʜᴀʀɪɴɢ ɪɴꜱɪɢʜᴛꜱ. ᴅᴏɴ'ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ᴄᴏʟʟᴀʙ! :3*
+I started getting the hang of this app because I like to collaborate, make new friends, and probably get to know more about you guys too. I think it's a cool way to share ideas, learn from others, and maybe even build some awesome things together! If you're one of the people following my account, you're awesome sauce dude 💋
 
-
+***I'm pretty active on ponytown so If you see me around Just say Hi!!***
 
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`

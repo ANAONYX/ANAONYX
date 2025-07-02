@@ -3,7 +3,6 @@
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
 
 
-![image](https://github.com/user-attachments/assets/d964ea57-47df-42a7-9aa7-1f8cd4b32984)
  📌 ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏`, 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩 (*Lol*)
 ----------
 ![Image](https://github.com/user-attachments/assets/82ed3787-435c-417e-9be4-cdebde542f99)
@@ -32,3 +31,5 @@ I started getting the hang of this app because I like to collaborate, make new f
 ![Image](https://github.com/user-attachments/assets/1bbe6f19-de52-4ad8-8782-a37a311b81a3)
 
 ![Image](https://github.com/user-attachments/assets/a6181f61-f5f4-4908-bbd9-01c143ec5f00)
+![image](https://github.com/user-attachments/assets/d964ea57-47df-42a7-9aa7-1f8cd4b32984)
+

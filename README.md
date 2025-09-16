@@ -29,6 +29,7 @@ I started getting the hang of this app because I like to collaborate, make new f
 
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`
+~
 **Alittle update:** *My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience*! <3
 ![Image](https://github.com/user-attachments/assets/c312a036-d857-4671-b091-bce8659c687a)
 

@@ -22,7 +22,9 @@
 
 ---
 
-I started getting the hang of this app because I like to collaborate, make new friends, and probably get to know more about you guys too. I think it's a cool way to share ideas, learn from others, and maybe even build some awesome things together! If you're one of the people following my account, you're awesome sauce dude 💋
+I started getting the hang of this app because I like to collaborate, make new friends, and probably get to know more about you guys too. I think it's a cool way to share ideas, learn from others, and maybe even build some awesome things together! If you're one of the people following my account, you're awesome sauce! 💋
+
+**Alittle update:** My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience! <3
 
 ***I'm pretty active on ponytown so If you see me around Just say Hi!! if you have concerns or questions - whisper***
 

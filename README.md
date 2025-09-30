@@ -20,7 +20,7 @@
 
 
 
--------
+---------
 
 I started getting the hang of this app because I've been seeing this used so I wanted to try. and probably get to know more about you guys too just by viewing your accounts. I saw alot of potential people put in their accounts, it tells me who you are and I will be cautious about that. Which is good! And don't take me as a stalker, I'm just a very courious type.
 

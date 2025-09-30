@@ -32,6 +32,6 @@ I started getting the hang of this app because I've been seeing this used so I w
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`
 ~
 
-<img width="640" height="377" alt="Image" src="https://github.com/user-attachments/assets/37daba03-721a-4a75-a20f-247eb04de8a6" />
+><img width="1000" height="9988" alt="Image" src="https://github.com/user-attachments/assets/37daba03-721a-4a75-a20f-247eb04de8a6" />
 
 `Alittle update:` *My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience*! <3

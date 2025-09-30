@@ -3,7 +3,7 @@
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
 
 
- 🎃ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏', 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩 
+ 🎃ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏', 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩 🕯
  ----------
 
 <img width="2048" height="137" alt="Image" src="https://github.com/user-attachments/assets/c164a3fc-148f-417a-b900-dae2a2537819" />
@@ -18,12 +18,12 @@
 - 𝗬𝗼𝘂 𝗮𝗿𝗲 𝗮 𝗽𝗿𝗼-𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (**I don't like proshippers because they support ships that romanticize harmful behaviors, like abuse or manipulation depending on what it is, which makes me uncomfortable. I believe some things shouldn’t be glorified in fandoms, even if it's fictional**)
 
 - 𝗬𝗼𝘂 𝗱𝗶𝘀𝗿𝗲𝗴𝗮𝗿𝗱 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝗼𝗿 𝗽𝗿𝗶𝘃𝗮𝗰𝘆—𝘄𝗵𝗲𝘁𝗵𝗲𝗿 𝗺𝗶𝗻𝗲 𝗼𝗿 𝗼𝘁𝗵𝗲𝗿𝘀’.
+ 
 
 ----------
 
-`𝐇𝐀𝐏𝐏𝐘 𝐅𝐀𝐋𝐋👻`
 
-I started getting the hang of this app because I've been seeing this used so I wanted to try. and probably get to know more about you guys too just by viewing your accounts. I saw alot of potential people put in their accounts, it tells me who you are and I will be cautious about that. Which is good! And don't take me as a stalker, I'm just a very courious type.
+I started getting the hang of this app because I've been seeing this used so I wanted to try. and probably get to know more about you guys too just by viewing your accounts. I saw alot of potential people put in their accounts, it tells me who you are and I will be cautious about that. Which is good! And don't take me as a stalker, I'm just a very courious type. 🐦‍⬛
 
 
 ***I'm pretty active on ponytown so If you see me around Just say Hi!! if you have concerns or questions - whisper***

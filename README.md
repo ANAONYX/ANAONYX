@@ -23,10 +23,12 @@
 ----------
 
 
-I started getting the hang of this app because I've been seeing this used so I wanted to try. and probably get to know more about you guys too just by viewing your accounts. I saw alot of potential people put in their accounts, it tells me who you are and I will be cautious about that. Which is good! And don't take me as a stalker, I'm just a very courious type.
+I started getting the hang of this app because I've been seeing this used by cool people and most of the time they use it to make it for personal visual for others. So its such a happy opportunity to join GitHub! I'm looking foward for any collaborations. 
+I also probably get to know more about you guys too just by viewing your accounts. I saw alot of effort people put in their accounts, it tells me who you are and what you're into which is unquie! I love every creativity you guys show And don't take me as a stalker, I'm just a very courious type. :,)
+I hope you're having a good day aswell.
 
 
-***I'm pretty active on ponytown so If you see me around Just say Hi!! if you have concerns or questions - whisper***
+***I'm pretty active (depending with holidays/school) on ponytown so If you see me around Just say Hi or give a follow, I'll probrably follow you too. if you have concerns or questions - whisper. . .***
 
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`

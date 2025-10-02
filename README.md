@@ -24,7 +24,7 @@
 
 
 I started getting the hang of this app because I've been seeing this used by cool people and most of the time they use it to make it for personal visual for others. So its such a happy opportunity to join GitHub! I'm looking foward for any collaborations. 
-I also probably get to know more about you guys too just by viewing your accounts. I saw alot of effort people put in their accounts, it tells me who you are and what you're into which is unquie! I love every creativity you guys show And don't take me as a stalker, I'm just a very courious type. :,)
+I also probably get to know more about you guys too just by viewing yours. I saw alot of effort people put in their accounts, it tells me who you are and what you're into, lovely and unquie! I love every creativity you guys show And don't take me as a stalker, I'm just a very courious type. :,)
 I hope you're having a good day aswell.
 
 

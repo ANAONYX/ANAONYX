@@ -34,4 +34,5 @@ I hope you're having a good day aswell.
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`
 
 
-![Image](https://github.com/user-attachments/assets/ff73dc47-384e-4def-8d99-29a09a457669)`Alittle update:` *My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience*! <3
+!![Image](https://github.com/user-attachments/assets/a5f8eba3-9024-4d80-988f-937013fff235)
+`Alittle update:` *My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience*! <3

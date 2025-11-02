@@ -3,7 +3,7 @@
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
 
 
- ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏', 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩 🕯
+ ℍ𝕖𝕪𝕠𝕠⭑.ᐟ 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 `𝔸ℕ𝔸𝕆ℕ𝕐𝕏', 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝔸𝕟𝕒 𝕆ℝ 𝕆𝕟𝕪𝕩🌹
  ----------
 
 <img width="1100" height="100" alt="Image" src="https://github.com/user-attachments/assets/9ece610d-bb52-4cca-b04c-cb746c3fcdae" />
@@ -34,5 +34,5 @@ I hope you're having a good day aswell.
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`
 
 
-!![Image](https://github.com/user-attachments/assets/a5f8eba3-9024-4d80-988f-937013fff235)
+[Image](https://github.com/user-attachments/assets/a5f8eba3-9024-4d80-988f-937013fff235)
 `Alittle update:` *My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience*! <3

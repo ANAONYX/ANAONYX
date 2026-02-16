@@ -28,7 +28,7 @@ I hope you're having a good day aswell.
 ***I'm pretty active (depending with holidays/school) on ponytown so If you see me around Just say Hi or give a follow, I'll probrably follow you too. if you have concerns or questions - whisper. . .***
 
 
-₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!*** `strawpage has been removed from this account`
+₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!***
 
 
-<img width="1200" height="555" alt="Image" src="https://github.com/user-attachments/assets/7fad68cc-3cd8-416c-b3b8-f692a7da1827" />``Alittle update:` *My motivation on my strawpage has been delaying due to school work activities. I have no remorse of its denialed completion though. I'll be around and surely enough, I'll finish it till then. Thank you for your patience*! <3
+<img width="1200" height="555" alt="Image" src="https://github.com/user-attachments/assets/7fad68cc-3cd8-416c-b3b8-f692a7da1827"

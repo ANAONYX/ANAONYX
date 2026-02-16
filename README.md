@@ -31,4 +31,4 @@ I hope you're having a good day aswell.
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!***
 
 
-<img width="1200" height="555" alt="Image" src="https://github.com/user-attachments/assets/7fad68cc-3cd8-416c-b3b8-f692a7da1827"
+<img width="1200" height="555" alt="Image" src="https://github.com/user-attachments/assets/7fad68cc-3cd8-416c-b3b8-f692a7da1827" >

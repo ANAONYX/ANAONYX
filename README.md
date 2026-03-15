@@ -31,10 +31,4 @@ I hope you're having a good day aswell.
 
 ₀.₅ ***anyways, that's all! to know more, explore my strawpage beneath my PFP!***
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312lu5emrqqxtndxgcqrk2vr6nna&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312lu5emrqqxtndxgcqrk2vr6nna&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=true">
-  </a>
-</p>
-
 <img width="1200" height="555" alt="Image" src="https://github.com/user-attachments/assets/7fad68cc-3cd8-416c-b3b8-f692a7da1827" >
